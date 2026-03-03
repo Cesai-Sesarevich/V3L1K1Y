@@ -12,7 +12,8 @@
 
 -----
 
-![i](https://github.com/user-attachments/assets/4869615e-60a1-4db1-b103-6206d942dbb6)
+![6ee01f8964ee91b802eae2742079c7f8](https://github.com/user-attachments/assets/a1bbaf54-b235-4d4a-83cd-3cf0d5b3d9c4)
+
 
 ----
 
@@ -21,7 +22,8 @@ you can say that im cool and youll be absolutely **RIGHT**!  (⁠≧⁠▽⁠≦
 
 ----
 
-![i](https://github.com/user-attachments/assets/f7a15082-fa8b-4ab6-83cd-94a27a1a2508)
+![i](https://github.com/user-attachments/assets/e5b612bc-3d33-4e9f-abc3-0a1ed7ad07a5)
+
 
 
 and *lastly* I know that you **like** me.    -3-
@@ -29,4 +31,5 @@ and *lastly* I know that you **like** me.    -3-
 -----
 
 
-![i](https://github.com/user-attachments/assets/b71170f7-5670-438d-803d-ee95337525d4)
+![i](https://github.com/user-attachments/assets/77889243-e07b-4395-b414-a10531f4b3a7)
+
